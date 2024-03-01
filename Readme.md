@@ -47,3 +47,11 @@
 ![CamScanner 01-26-2024 17 33](https://github.com/C191068/AL_Quran/assets/89090776/8098c490-d8ec-4f7a-bcfe-5aa402ee95cc)
 ![CamScanner 02-07-2024 06 20](https://github.com/C191068/AL_Quran/assets/89090776/21cf003e-499f-431d-921e-cfc06a81cf2c)
 ![CamScanner 02-09-2024 17 24](https://github.com/C191068/AL_Quran/assets/89090776/5806974e-db2b-449d-b01a-c8cc46a1567e)
+
+![CamScanner 02-28-2024 06 10](https://github.com/C191068/AL_Quran/assets/89090776/e70c7792-89eb-450e-9d17-1b698700b656)
+![CamScanner 02-19-2024 06 34](https://github.com/C191068/AL_Quran/assets/89090776/a6bd40db-dad6-466b-a19c-4aaa259582eb)
+![CamScanner 02-17-2024 07 29_2](https://github.com/C191068/AL_Quran/assets/89090776/b2a2f844-1f8d-4fc5-acbc-b252235404ba)
+![CamScanner 02-17-2024 07 29_1](https://github.com/C191068/AL_Quran/assets/89090776/fe6aa04d-73b4-4599-b128-5c4d0f7f3919)
+![CamScanner 02-13-2024 16 55](https://github.com/C191068/AL_Quran/assets/89090776/ff842635-e952-445a-af37-c02745c39071)
+![CamScanner 02-14-2024 06 10_1](https://github.com/C191068/AL_Quran/assets/89090776/ad1f37cd-1e25-40b1-b6c7-0494a572a314)
+
